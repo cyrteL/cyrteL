@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cyrteL
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning in 9th form
+- 🌱 I’m currently learning in 10th form
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - discord: @dark7es
 - ⚡ Fun fact: Relly like coding)
