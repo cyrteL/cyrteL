@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @cyrteL
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning in 10th form
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning in 11th form
+- 💞️ I’m looking to collaborate on Microsoft)
 - 📫 How to reach me - discord: @dark7es
-- ⚡ Fun fact: Relly like coding)
+- ⚡ Fun fact: ...
 
 <!---
 cyrteL/cyrteL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
