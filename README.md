@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @cyrteL<br>👀 I’m interested in coding<br>🌱 I’m currently learning in 11th form<br>💞️ I’m looking to collaborate on Microsoft)
+👋 Hi, I’m @cyrteL<br>👀 I’m interested in coding<br>🌱 I’m currently learning in 11th form<br>💞️ I’m looking to collaborate on Black Rock)
 
 
 # 💻 Tech Stack:
